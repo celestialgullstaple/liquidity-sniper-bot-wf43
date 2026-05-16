@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with updated Automation for liquidity sniper bot | volume-spike-detection & liquidity-sniping, the #1 liquidity sniper bot. Includes volume-spike-detection
 
 
 
